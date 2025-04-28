@@ -1,4 +1,8 @@
 # Agent资源汇总
+# 极客实践最新完整资源集合阿里网盘的
+
+https://www.aliyundrive.com/s/vFvMPgSEkZt/folder/621c9c9a3099a1058d0d49058951caa1d83231e9
+
 
 # 微软十堂课
 
