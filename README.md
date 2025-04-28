@@ -182,7 +182,7 @@ https://github.com/luhengshiwo/LLMForEverybody
 
 
 
-# 破解网站|企业级 Agents 开发实战营
+# 破解网站|企业级 Agents 开发实战营（资源未保存）夸克网盘的
 
 https://www.52pojie.cn/thread-2004422-1-1.html
 
