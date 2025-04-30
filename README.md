@@ -1,5 +1,6 @@
 ![image](https://github.com/user-attachments/assets/274da3cc-09c4-46dc-94fe-3b3ffafe8059)
 
+![image](https://github.com/user-attachments/assets/c9ffd92c-a7bc-4207-9089-8a6e293615cc)
 
 
 # Agent资源汇总
