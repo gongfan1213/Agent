@@ -3,6 +3,8 @@
 ![image](https://github.com/user-attachments/assets/c9ffd92c-a7bc-4207-9089-8a6e293615cc)
 
 
+https://github.com/agno-agi/agno/tree/main/cookbook
+
 # Agent资源汇总
 
 # 极客实践最新完整资源集合阿里网盘的
