@@ -5,6 +5,9 @@
 
 https://github.com/agno-agi/agno/tree/main/cookbook
 
+链接: https://pan.baidu.com/s/1Rdg2PSgrsHPlO3MJ9G4Kmw 提取码: uuyf 复制这段内容后打开百度网盘手机App，操作更方便哦
+--来自百度网盘超级会员v5的分享
+
 # Agent资源汇总
 
 # 极客实践最新完整资源集合阿里网盘的
